@@ -20,9 +20,11 @@ In an industry increasingly ruffled by the fast-fashion frenzy, Chic is more tha
 
 Boldly squawking against the rampant 'wear and tear' culture, Chic is a beacon of slow fashion in an industry that changes faster than the migratory winds. She champions:
 
-1. Investing in timeless classics over disposable trends.
-2. Refurbishing and recycling existing wardrobe pieces.
-3. From Debris to Catwalk: The L'Élégull Chic Way
+- Investing in timeless classics over disposable trends.
+- Refurbishing and recycling existing materials and pieces.
+
+## From Debris to Catwalk: The L'Élégull Chic Way
+
 Chic proudly struts her heirloom classics and refurbished creations along the coastline catwalks. A salvaged fishing net transforms into an avant-gull headpiece, a piece of sun-bleached driftwood morphs into a statement brooch. Her creations peck at the outdated notion that 'used' equates to 'unusable'.
 
 Her signature mussel-shell beak care products, lovingly plucked from washed-up beach debris, signify a commitment to reducing waste and creating local jobs. Even her classic black and white algae dye jobs are a testament to her belief in organic alternatives to the synthetic colorants that pollute our pristine waters.
