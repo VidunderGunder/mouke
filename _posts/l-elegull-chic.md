@@ -18,10 +18,7 @@ In an industry increasingly ruffled by the fast-fashion frenzy, Chic is more tha
 
 ## Drop the Trash: Sustainable Classics
 
-Boldly squawking against the rampant 'wear and tear' culture, Chic is a beacon of slow fashion in an industry that changes faster than the migratory winds. She champions:
-
-- Investing in timeless classics over disposable trends.
-- Refurbishing and recycling existing materials and pieces.
+Boldly squawking against the rampant 'wear and tear' culture, Chic is a beacon of slow fashion in an industry that changes faster than the migratory winds. She champions investing in timeless classics over disposable trends and reusing existing materials and pieces.
 
 ## From Debris to Catwalk: The L'Élégull Chic Way
 
