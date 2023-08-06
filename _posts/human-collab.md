@@ -40,6 +40,6 @@ But it's not just about what's in front of the camera. These humans are showing 
 
 ---
 
-In the squawks of our haute hatters, "True style isn't just about how you fly, it's about how you're captured in flight." Mouke couldn't agree more. Now that's fashion with a bird's-eye view.
+In the squawks of our haute collabers, "True style isn't just about how you fly, it's about how you're captured in flight." Mouke couldn't agree more. Now that's fashion with a bird's-eye view.
 
 ---

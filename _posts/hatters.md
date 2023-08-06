@@ -36,6 +36,6 @@ Mouke applauds the Hatters for their ingenuity, for showing us that fashion isn'
 
 ---
 
-As the Hatters continue to redefine the fashion landscape, it's clear they're not just models; they're a phenomenon. In the words of our haute heroes, "True style isn't just about how you dress, it's about how you express." Mouke couldn't agree more. Now that's fashion with a bird's-eye view.
+As the Hatters continue to redefine the fashion landscape, it's clear they're not just models; they're a phenomenon. In the words of our haute hatters, "True style isn't just about how you dress, it's about how you express." Mouke couldn't agree more. Now that's fashion with a bird's-eye view.
 
 ---
