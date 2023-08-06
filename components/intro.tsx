@@ -8,7 +8,7 @@ const Intro = () => {
       </h1>
 
       <h4 className="text-center md:text-left text-lg mt-5 md:pl-8 mb-0 pb-0 leading-10">
-        Fashion-Forward Feathers{" "}
+        Fashion-Forward Feathers Flaunts Together{" "}
       </h4>
     </section>
   );
