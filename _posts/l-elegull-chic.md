@@ -2,7 +2,7 @@
 title: "L'Élégull Chic: Ruffling the Feathers of the Fast Fashion World"
 excerpt: "Bursting from the confines of the conventional nest, L'Élégull Chic has swiftly ascended to the top beak of the fashion aviary. But now, this sartorial seagull is squawking up a storm for a cause that stretches beyond the sea foam runway: sustainability."
 coverImage: "/assets/blog/l-elegull-chic/cover.jpg"
-date: "2023-07-06T13:35:07.322Z"
+date: "2023-08-06T13:35:07.322Z"
 author:
   name: Kristian Gunder Kramås
   picture: "/assets/blog/authors/kgk.jpeg"
