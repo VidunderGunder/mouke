@@ -20,7 +20,7 @@ While we might think of humans as being most useful when they're sharing their s
 
 ## Feathered Elegance: Seagulls in the Spotlight
 
-Humans have a talent for highlighting natural beauty. Their photographs showcase the elegance and strength of seagulls in all our glory, much more so than your average camera operating seagull could ever dream to produce. Whether they're posed against the stunning backdrop of the Oslo Opera House or caught in the throes of a passionate squawk, human photographers are truly able to capture the essence of seagulldom.
+Humans have a talent for highlighting natural beauty. Their photographs showcase the elegance and strength of seagulls in all their glory, much more so than your average camera operating seagull could ever dream to produce. Whether they're posed against the stunning backdrop of the Oslo Opera House or caught in the throes of a passionate squawk, human photographers are truly able to capture the essence of seagulldom.
 
 ![Human Collab 3](/assets/blog/human-collab/image3.jpg)
 
